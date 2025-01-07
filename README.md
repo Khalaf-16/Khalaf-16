@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Front-End and Back-End
 - 📫 How to reach me LinkedIn: linkedin.com/in/abdullah-musa-3680b9328 ; Gmail: khalafmusa77@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I love playing football⚽.
+- ⚡ Fun fact: Funny, smart, and respectful – best combo ever! 😎.
 
 <!---
 Khalaf-16/Khalaf-16 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
